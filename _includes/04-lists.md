@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Cycling.
+2. Running.
+3. Spending time with family.
